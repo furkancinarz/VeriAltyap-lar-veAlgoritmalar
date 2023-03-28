@@ -1,0 +1,1 @@
+# VeriAltyap-lar-veAlgoritmalar
